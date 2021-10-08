@@ -6,4 +6,4 @@
 
 ⚡ Im also comfortable using Java, C# (.NET) and SQL.
 
-https://www.linkedin.com/in/marcus-jensen-55038393
+👨 https://www.linkedin.com/in/marcus-jensen-55038393
